@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ThatArhamGuy
+- 👀 I’m interested in well many things yet nothing, idk what I'm intrested in, I just flop into things
+- 🌱 I’m currently learning HTML and CSS, you can see and use my websites, no charge
+- 📫 How to reach me, contact me @arhamshah@myself.com
